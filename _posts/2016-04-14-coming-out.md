@@ -9,7 +9,7 @@ categories:
 
 In the last couple years I've gotten to this really great point in my life. I love the city I live in, I love my job and my new career, and I love all of my friends between Boston, New Jersey, and wherever else they may live. With how great everything has been going, there was something I was still fundamentally unhappy about, so this past summer I decided to start taking steps to make that better.
 
-![coming out](./../../../images/coming-out/coming-out.gif)
+![coming out](./../../../images/coming-out.gif)
 
 Since I was young, around 13 or 14, I knew that I liked both boys and girls. For those of you who I haven't told yet, that's right; I'm 🌈not straight🌈. I told almost no one for 15 years, and I dreaded anyone finding out for just as long. This summer I started telling some of my close friends, which was made a lot easier now that I have a lot of LGBTQ+ friends to share it with.
 
@@ -28,7 +28,7 @@ No, not every man who likes men is gay, although I understand your confusion. I 
 
 Chris, typically.
 
-![karen](./../../../images/coming-out/karen.gif)
+![karen](./../../../images/karen.gif)
 
 If you mean what adjectives can you use to describe my orientation though, I personally prefer `queer`, but `bisexual` and `pansexual` are also totally fine.
 
@@ -66,6 +66,6 @@ To sum it up, "Chris is queer" or "Chris is a queer dude" is totally cool and ac
 
 For anyone who is reading this and wondering, "When did this happen?", or "Seeing Chris is going to be so weird now.", keep in mind that I have felt this way for my entire life and you just haven't known about it. I'm still the same person, so if you didn't like me before, you still won't, and if we got along before, we probably still will.
 
-![flag](./../../../images/coming-out/flag.gif)
+![flag](./../../../images/flag.gif)
 
 This is just something that I __really__ needed to get off my chest. If you have questions or want to talk to me about this, please feel free, that's totally cool. If you feel weird about it and don't want to bring it up, that's also cool, we can just go on totally ignoring the fact that I like boys. This got a little more serious than I intended, but really so far everyone that I've told has been awesome and supportive and I love all of ya. If you read this whole thing, then seriously thank you, that's pretty cool of you.
